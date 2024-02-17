@@ -4,7 +4,7 @@
 #### 介绍
 [https://github.com/Juruobudong/ShiJiuLvJianZhangQunMeiShiBang/blob/main/README.md](https://github.com/Juruobudong/ShiJiuLvJianZhangQunMeiShiBang/blob/main/README.md)
 
-本人：一个很爱吃的二次元程序猿,老家厦门,欢迎家人们来厦门吃喝玩乐
+**本人：一个很爱吃的二次元程序猿,老家厦门,欢迎家人们来厦门吃喝玩乐，网站右上角的三横可以打开大纲目录**
 
 **感谢所有对该榜单提供过帮助的友友们，本人集百家之长，站在巨人们的肩膀上，只做了些整合和安利+锐评或安利自己吃过的店。然后各位榜单有可能更新不及时，导致有些店已经关门了还在榜上，欢迎提醒up更新榜单啦，感谢各位。**
 
