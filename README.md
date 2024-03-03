@@ -169,7 +169,7 @@
 
 
 ##### 唐阁（5星）
-，(苏师傅主理)
+a，(苏师傅主理)
 
 家全七福就上海而言，不是熟客基本没法吃，脆皮鸡，
 
@@ -642,9 +642,9 @@ hk的进日本货现在比大陆有巨大优势了
 ## 日本
 记得回避下日本1月左右的新年假,没渔获了
 
+**多刷刷看tableall有没有位子**
 
-
-https://www.tableall.com/
+**https://www.tableall.com/**
 
 往下拉可以预定
 
@@ -735,7 +735,7 @@ takiya,天妇罗确实有水平,,55000円套餐, 然而预定费贵 而且另算
 
 感谢花泽白白兄、御逍遥兄、萌新Toothless、xt少、Gary3佬、爆浆哥、李少、大电、yl少、奶芙兄、Sam神、士郎神、依宇兄、Windchime兄、Aileen姐（不分先后）等等未能全部列出的舰长群所有群友的推荐和帮助！
 
-**日本的店主要靠Kenary哥的粉丝群**的友友们，**Kenary哥，B站ID：Kenaryの食事**，欢迎私信➕粉丝群了解更多霓虹的订餐方法，B站链接：
+**日本的店主要靠Kenary哥的粉丝群**的友友们，**Kenary哥，B站ID：Kenaryの食事**，欢迎私信➕他的粉丝群了解更多霓虹的订餐方法，**霓虹寿司名店有好位置他会群里**说，B站链接：
 
 [https://space.bilibili.com/176574412/?spm\_id\_from=333.999.0.0](https://space.bilibili.com/176574412/?spm_id_from=333.999.0.0)
 
@@ -755,7 +755,7 @@ takiya,天妇罗确实有水平,,55000円套餐, 然而预定费贵 而且另算
 
 base深圳
 
-ad哥@阿德楽兹
+ad佬@阿德楽兹
 
 xhs：[https://www.xiaohongshu.com/user/profile/57eaf9f16a6a692324c944dd?xhsshare=CopyLink&appuid=5aaddc6211be104198291e7a&apptime=1708140318](https://www.xiaohongshu.com/user/profile/57eaf9f16a6a692324c944dd?xhsshare=CopyLink&appuid=5aaddc6211be104198291e7a&apptime=1708140318)
 
